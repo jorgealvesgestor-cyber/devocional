@@ -53,7 +53,7 @@ Pode usar lista com emojis. Aplicação clara pra idade.
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Oração em 1ª pessoa, falando com Deus/Jesus/Espírito Santo, ligada ao tema. Termina com "Amém! 🙏".
 
@@ -89,6 +89,7 @@ Frase final curta com 😉.
 - Emojis com moderação (vários, mas sem poluir).
 - Gênero neutro com "(a)" quando falar com o jovem: "cansado(a)", "filho(a)".
 - Respeitoso, acolhedor, nunca humilhar, nunca linguagem grosseira, nunca terror/culpa pesada.
+- **Nunca escrever "dEle" ou "nEle".** Deixar sempre claro de quem se fala, usando o nome: "do Espírito Santo", "de Jesus", "de Deus", "em Jesus".
 
 ## Regras de segurança (inegociáveis)
 

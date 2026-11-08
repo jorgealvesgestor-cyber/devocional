@@ -27,7 +27,7 @@ Tá ligado? O Espírito Santo não é uma "energia" ou um sentimento. Ele é **D
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Espírito Santo, eu quero Te conhecer de verdade! Não só ouvir falar de Ti, mas andar Contigo como um amigo que está sempre do lado. Obrigado(a) porque eu nunca estou sozinho(a). Quando o medo vier, me lembra das palavras de Jesus: não se perturbe o teu coração. Ensina-me, guia-me, consola-me. Seja bem-vindo aqui! Amém! 🙏
 
@@ -39,7 +39,7 @@ Espírito Santo, eu quero Te conhecer de verdade! Não só ouvir falar de Ti, ma
 
 1. Amanhã, assim que acordar (antes de pegar o celular! 📵), diz: **"Bom dia, Espírito Santo!"**
 2. Conversa com Ele durante o dia: no caminho da escola, antes da prova, no intervalo.
-3. À noite, anota um momento em que você sentiu a presença ou a ajuda dEle.
+3. À noite, anota um momento em que você sentiu a presença ou a ajuda do Espírito Santo.
 
 Ele é o melhor amigo que alguém pode ter! 😉
 
@@ -77,7 +77,7 @@ E o que eles fazem? Voltam pra Jerusalém e ficam **orando juntos**, esperando.
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Pai, eu quero receber o poder que Jesus prometeu! Não pra me exibir, mas pra ser testemunha de Jesus onde eu estiver: na minha casa, na minha escola, na minha cidade. Espírito Santo, vem sobre mim! Me dá ousadia pra falar de Jesus e uma vida que mostre o que eu falo. Eu quero ser como os discípulos: perseverante na oração e cheio(a) do Teu poder. Amém! 🙏
 
@@ -131,7 +131,7 @@ Resultado: **quase 3 mil pessoas** entregaram a vida a Jesus naquele dia!
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Pai, a Tua promessa é pra mim também! Atos 2:39 diz que ela é pra nós, pros nossos filhos e pra todos que o Senhor chamar. Então eu peço: me enche do Teu Espírito Santo! Derrama sobre mim o mesmo fogo que caiu no Pentecostes. Transforma minha timidez em ousadia, como fez com Pedro. Eu quero ser da geração que tem visões e sonhos de Deus! Vem, Espírito Santo! Amém! 🙏🔥
 
@@ -183,7 +183,7 @@ Ameaçados, Pedro e João não pediram pra Deus tirar o problema. Eles oraram pe
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, eu confesso que às vezes tenho vergonha de mostrar que sou Teu. Me perdoa! Hoje eu faço a mesma oração dos discípulos: me dá ousadia! Espírito Santo, me enche de coragem pra viver minha fé sem medo na escola, nas redes sociais e com meus amigos. Que as pessoas olhem pra mim e percebam: essa pessoa esteve com Jesus. Amém! 🙏
 
@@ -238,7 +238,7 @@ E o final é épico: *"Se Deus é por nós, quem será contra nós?"* (v. 31). P
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Aba, Pai! Paizinho! Obrigado(a) porque em Jesus eu não sou condenado(a). Eu rejeito toda voz de acusação e culpa que tenta me paralisar. Espírito Santo, obrigado(a) por orar por mim quando eu não tenho palavras. Me lembra todos os dias que eu sou filho(a) amado(a), e que nada, absolutamente nada, pode me separar do Teu amor. Amém! 🙏
 
@@ -249,7 +249,7 @@ Aba, Pai! Paizinho! Obrigado(a) porque em Jesus eu não sou condenado(a). Eu rej
 **Missão: Calar a Voz da Culpa!**
 
 1. Escreve num papel uma frase de condenação que costuma passar na sua cabeça (ex.: "eu não sou bom o suficiente").
-2. Do lado, escreve a verdade de Romanos 8 por cima: **"Não há condenação. Eu sou filho(a) de Deus. Nada me separa do amor dEle."**
+2. Do lado, escreve a verdade de Romanos 8 por cima: **"Não há condenação. Eu sou filho(a) de Deus. Nada me separa do amor de Deus."**
 3. Rasga o papel com a mentira e guarda só a verdade (pode tirar foto e colocar de papel de parede!).
 
 A verdade de Deus é mais alta que qualquer voz! 😉
@@ -292,7 +292,7 @@ Paulo fecha assim: *"Se vivemos pelo Espírito, andemos também pelo Espírito"*
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Espírito Santo, eu quero que a minha vida tenha o Teu fruto! Tu conheces as minhas lutas: a raiva que explode, a inveja que aparece, a impaciência com a minha família. Eu não consigo mudar sozinho(a). Por isso eu Te peço: produz em mim amor, alegria, paz, paciência, amabilidade, bondade, fidelidade, mansidão e domínio próprio. Que as pessoas sintam o Teu sabor quando estiverem perto de mim. Amém! 🙏
 
@@ -342,7 +342,7 @@ Cada parte é **diferente** e **necessária**. Inclusive, Paulo diz que as parte
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Espírito Santo, obrigado(a) porque Tu tens um lugar especial pra mim no Corpo de Cristo. Me perdoa por me comparar com os outros e achar que eu não sirvo. Hoje eu me coloco à disposição: me revela os dons que o Senhor colocou em mim e me ensina a usar cada um pra servir, não pra aparecer. Usa a minha vida pra abençoar a minha igreja e o mundo! Amém! 🙏
 

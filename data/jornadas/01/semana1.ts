@@ -27,7 +27,7 @@ E mais: quem recebe Jesus ganha um novo **RG espiritual**: vira **filho(a) de De
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Jesus, hoje eu quero te receber de verdade na minha vida. Acende a Tua luz em cada cantinho escuro do meu coração. Espírito Santo, me ajuda a conhecer Jesus não só de ouvir falar, mas de andar junto todos os dias. Que essa jornada de 30 dias mude a minha história. Eu quero ser luz na minha casa, na minha escola e com os meus amigos. Amém! 🙏
 
@@ -79,7 +79,7 @@ E aí vem o famoso João 3:16: Deus amou tanto que **deu**. O amor de Deus não 
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Jesus diz que o Espírito é como o **vento**: a gente não vê, mas sente e vê o que ele faz (João 3:8).
 
@@ -129,7 +129,7 @@ A mulher sai dali tão transformada que **esquece o balde** e corre pra cidade c
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Jesus disse que Deus procura quem O adore **em espírito e em verdade** (João 4:23-24).
 
@@ -183,7 +183,7 @@ Depois disso, Jesus manda a real: *"Eu sou o pão da vida"*. Ele não quer ser s
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, hoje eu entrego nas Tuas mãos o meu "pão e peixe". Meus talentos, minha voz, meu jeito, minha história: é pouco pra mim, mas nas Tuas mãos vira milagre! Espírito Santo, me usa do jeito que eu sou, aqui e agora, sem esperar crescer. Que eu tenha mais fome de Ti do que de qualquer outra coisa. Amém! 🙏
 
@@ -233,7 +233,7 @@ E o mais forte: o bom pastor **dá a vida** pelas ovelhas. Foi exatamente o que 
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Jesus, meu Bom Pastor, eu quero aprender a reconhecer a Tua voz no meio de tanto barulho. Espírito Santo, fala comigo! Abre meus ouvidos espirituais e me ajuda a perceber quando é o Senhor me guiando. Me protege das vozes que só querem roubar minha alegria e minha paz. Eu escolho Te seguir. Amém! 🙏
 
@@ -285,9 +285,9 @@ E tem mais: Jesus chama a gente de **amigos** (João 15:15). Não de empregados,
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
-No versículo 26, Jesus promete o **Espírito da verdade**, que mantém a gente ligado nEle.
+No versículo 26, Jesus promete o **Espírito da verdade**, que mantém a gente ligado em Jesus.
 
 Jesus, eu quero permanecer em Ti! Me perdoa pelos dias em que eu me desconectei e tentei viver na minha própria força. Espírito Santo, Tu és o cabo que me liga à fonte: me enche de novo hoje! Que a minha vida dê fruto: amor, paciência, alegria, bondade. Obrigado(a) por me chamar de amigo(a). Amém! 🙏
 
@@ -337,7 +337,7 @@ O túmulo tá vazio. **Jesus está vivo!**
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 No versículo 22, Jesus **sopra** sobre os discípulos e diz: *"Recebam o Espírito Santo"*.
 

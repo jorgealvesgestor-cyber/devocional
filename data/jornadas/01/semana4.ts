@@ -27,7 +27,7 @@ E Jesus vai além: *"amem os seus inimigos e orem por aqueles que os perseguem"*
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Jesus, eu quero ser sal e luz onde eu estiver! Me perdoa pelas vezes em que eu escondi a minha luz por vergonha ou por medo. Espírito Santo, me ajuda a fazer a diferença de verdade: na forma como eu trato meus pais, meus professores, meus colegas. E me dá um coração capaz de amar e orar até por quem me trata mal. Que as pessoas vejam as minhas boas obras e glorifiquem o Pai! Amém! 🙏
 
@@ -79,7 +79,7 @@ O segredo? **Buscar primeiro o Reino de Deus**. O resto, Deus acrescenta.
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Pai nosso, que estás nos céus... eu Te entrego todas as minhas preocupações agora. A prova, o futuro, o que pensam de mim, o que me deixa acordado(a) à noite. Tu cuidas dos passarinhos e das flores, e eu sei que cuidas muito mais de mim. Espírito Santo, enche meu coração de paz. Hoje eu escolho buscar primeiro o Teu Reino, e confiar que o Senhor cuida do resto. Amém! 🙏
 
@@ -129,7 +129,7 @@ A parada aqui é a seguinte: o nosso "eu" precisa diminuir pra que o brilho de J
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Espírito Santo, quebra o orgulho que tenta brotar no meu coração. Eu quero ter a mente de Cristo! Tira de mim a vontade de ser sempre o centro das atenções e coloca no lugar um coração que serve, que ama, que ajuda e que estende a mão. Que a minha vida seja um reflexo do Teu amor, sem máscaras e sem arrogância, só o Teu fogo ardendo em mim! 🔥 Transforma meu jeito de tratar meus amigos, minha família e quem mais precisa. Amém! 🙏
 
@@ -183,7 +183,7 @@ E fecha com o famoso: *"Tudo posso naquele que me fortalece"* (v. 13). Repara no
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, eu quero uma alegria que não dependa do que acontece ao meu redor! Hoje eu troco a minha ansiedade por oração e por gratidão. Obrigado(a) por tudo que o Senhor já fez por mim! Espírito Santo, guarda o meu coração e a minha mente com a Tua paz. Me ajuda a filtrar o que eu vejo e o que eu penso. Eu posso todas as coisas em Cristo, que me fortalece! Amém! 🙏
 
@@ -235,7 +235,7 @@ E tem mais conselho prático:
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, eu Te apresento as dificuldades que eu tô passando. Em vez de reclamar, eu escolho confiar que o Senhor está me fortalecendo através delas. Me dá sabedoria, porque muitas vezes eu não sei o que fazer! Espírito Santo, me ajuda a ser rápido(a) pra ouvir e lento(a) pra me irritar. E que tudo que eu aprendi nesses 26 dias não fique só na cabeça, mas vire prática na minha vida! Amém! 🙏
 
@@ -290,7 +290,7 @@ E Paulo fecha com a "conexão" de tudo: **orar no Espírito em todas as ocasiõe
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Pai, hoje eu me visto com a Tua armadura! Coloco o cinto da verdade, a couraça da justiça, os calçados da paz. Levanto o escudo da fé contra toda mentira do inimigo. Coloco o capacete da salvação e pego a espada do Espírito, que é a Tua Palavra. Espírito Santo, me ensina a orar em todo tempo. Eu não luto contra pessoas, eu luto de joelhos! E eu sei que em Ti eu sou mais que vencedor(a)! Amém! 🙏
 
@@ -342,7 +342,7 @@ No final, Davi pede: *"Sonda-me, ó Deus, e conhece o meu coração"* (v. 23). E
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Deus, obrigado(a) porque Tu me conheces por completo e mesmo assim me amas! Me perdoa pelas vezes em que eu reclamei de quem eu sou e me comparei com os outros. Hoje eu declaro: eu fui feito(a) de modo especial e admirável! Espírito Santo, cura as feridas da minha autoestima. Sonda o meu coração e me mostra o que precisa mudar. Eu sou Teu(Tua), e isso me basta. Amém! 🙏
 
@@ -396,7 +396,7 @@ O resto do capítulo é um manual prático de como viver diferente:
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, hoje eu ofereço a minha vida como sacrifício vivo pra Ti. Meu corpo, minha mente, meu tempo, meus sonhos: tudo é Teu! Eu não quero me encaixar na forma deste mundo. Espírito Santo, renova a minha mente! Troca os meus pensamentos pelos Teus. Me ajuda a vencer o mal com o bem, a amar de verdade e a viver em paz com todos. Eu faço parte da geração que não se conforma! Amém! 🙏🔥
 
@@ -449,7 +449,7 @@ E a última frase do livro é uma promessa que resume toda a nossa jornada: *"E 
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Jesus, obrigado(a) por esses 30 dias! Obrigado(a) por cada palavra, cada desafio, cada momento em que eu senti a Tua presença. Eu aceito a Tua missão: eu quero ir e fazer discípulos! Espírito Santo, me enche de novo agora, com poder e ousadia, pra eu falar de Jesus na minha casa, na minha escola e onde mais o Senhor me mandar. E obrigado(a) pela promessa: Tu estarás comigo todos os dias, até o fim. Eu nunca estou sozinho(a). Amém! 🙏🔥
 

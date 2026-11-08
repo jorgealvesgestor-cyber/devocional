@@ -27,7 +27,7 @@ Deus também deu o segredo: meditar na **Palavra** de dia e de noite (v. 8). A c
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, Tu conheces os desafios que eu estou enfrentando agora. Às vezes eu me sinto pequeno(a) e com medo. Mas hoje eu escolho acreditar na Tua promessa: Tu estás comigo por onde eu andar! Espírito Santo, enche meu coração de coragem. Que a Tua Palavra seja a minha força de dia e de noite. Eu não vou desanimar, porque eu não estou sozinho(a)! Amém! 🙏
 
@@ -79,7 +79,7 @@ Davi não era o mais forte. Ele só **confiava** em quem era maior que o gigante
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor dos Exércitos, eu Te apresento o gigante que eu tenho enfrentado. Tu sabes o nome dele. Hoje eu escolho olhar pra Ti e não pro tamanho do problema. Espírito Santo, me dá a fé do Davi! Me ajuda a usar o que eu tenho nas mãos, sem tentar ser quem eu não sou. A batalha é Tua, e eu sei que nenhum gigante é maior que o meu Deus! Amém! 🙏
 
@@ -129,7 +129,7 @@ Ester toma uma decisão de coragem: pede pra todo o povo **jejuar e orar** por e
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Pai, obrigado(a) porque eu não estou aqui por acaso. Tu me colocaste na minha família, na minha escola e nessa geração com um propósito. Espírito Santo, me mostra pra que momento eu fui chamado(a)! Me dá coragem pra defender o que é certo, mesmo quando for arriscado ou impopular. Que eu não fique em silêncio quando precisar falar. Amém! 🙏
 
@@ -181,7 +181,7 @@ E Deus deu aos quatro jovens **sabedoria e inteligência** fora do comum. Eles e
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, eu quero ter um coração decidido como o de Daniel! Num mundo que tenta me moldar o tempo todo, me ajuda a ser fiel a Ti. Espírito Santo, me dá sabedoria pra saber dizer "não" com respeito e firmeza. Que eu seja diferente do jeito certo: não arrogante, mas cheio(a) da Tua graça. E me dá inteligência pra me destacar nos estudos pra Tua glória! Amém! 🙏
 
@@ -233,7 +233,7 @@ Eles saíram **sem nem cheiro de fumaça**!
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, eu quero ter uma fé que não depende das circunstâncias! Mesmo que as coisas não saiam do meu jeito, eu escolho não me curvar pro que é errado. Obrigado(a) porque, quando eu estiver passando pelo fogo, o Senhor vai estar lá dentro comigo, como esteve com aqueles três amigos. Espírito Santo, me dá firmeza pra ficar de pé quando todo mundo se curvar. Amém! 🙏
 
@@ -285,7 +285,7 @@ Aí Deus **toca a boca** do Jeremias e diz: *"Agora ponho em sua boca as minhas 
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Pai, obrigado(a) porque antes mesmo de eu nascer Tu já me conhecias e tinhas um plano pra mim! Eu não vou mais usar a minha idade como desculpa. Espírito Santo, toca a minha boca como tocaste a de Jeremias. Coloca em mim as Tuas palavras, pra eu falar de Jesus com amor e coragem. Eu estou disponível: usa a minha vida! Amém! 🙏
 
@@ -341,7 +341,7 @@ Tá ligado? O respeito não vem da idade, vem do **exemplo**!
 
 ## 3. Conexão Espírito Santo 🔥
 
-*Feche os olhos por um segundo, respira fundo e sente a presença dEle aí onde você está.*
+*Feche os olhos por um segundo, respira fundo e sente a presença do Espírito Santo aí onde você está.*
 
 Senhor, eu quero ser exemplo! Não pra me exibir, mas pra que as pessoas vejam Jesus em mim. Espírito Santo, me ajuda a ser exemplo na forma como eu falo, no jeito que eu ajo, no amor que eu demonstro, na fé que eu vivo e na pureza do meu coração. Que nenhum adulto, colega ou amigo possa desprezar a minha juventude, porque a minha vida vai falar mais alto. Amém! 🙏
 
